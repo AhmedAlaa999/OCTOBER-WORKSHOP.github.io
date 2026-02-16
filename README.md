@@ -8,8 +8,7 @@ October is the Best
 -------
 Pic
 ----
-<img width="1331" height="630" alt="Screenshot (3)" src="https://github.com/user-attachments/assets/dc7c3837-fda3-49d1-bc0a-6c7722f57d19" />
-
+<img width="1360" height="628" alt="Screenshot (5)" src="https://github.com/user-attachments/assets/3203270e-e146-4109-a8c4-139df7e88992" />
 
 October is the Best
 -----------
